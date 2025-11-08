@@ -10,7 +10,7 @@ Team Leader : Muthu Kumari C
 
 Team member : Muthu Vennila A
 
-Team member : hanis MARY V
+Team member : Thanis Mary V
 
 Team member : Pakkiya Puvina M
 
